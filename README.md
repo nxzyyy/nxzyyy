@@ -1,3 +1,4 @@
+**FOR ALL INFORMATIONS AND POSSIBILITY OF CONTACT --> https://fraud.lol/nxzy 
 - 👋 Hi, I’m @nxzyyy
 - 👀 I’m interested in Development of frameworks
 - 🌱 I’m currently learning Java/C++
